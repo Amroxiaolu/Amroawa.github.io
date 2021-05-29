@@ -1,6 +1,6 @@
 ## Welcome to Amro工会
 
-您可以在 [b站](https://space.bilibili.com/690611470)关注我的动态
+您可以在 我的b站主页[点我进入](https://space.bilibili.com/690611470)关注我的动态
 
 ### 成员
 会长：Amro_xiaolua
