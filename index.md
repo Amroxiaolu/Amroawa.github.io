@@ -2,7 +2,7 @@
 
 您可以在 我的b站主页[点我进入](https://space.bilibili.com/690611470)关注我的动态
 
-### 成员
+### 主要成员
 会长：Amro_xiaolua
 
 副会长：Xiaoheizhia、Paperqwq
