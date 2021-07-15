@@ -10,7 +10,7 @@
 ### 主要成员
 会长：Amro_xiaolua
 
-副会长：Amro_GuoDong、Paperqwq
+副会长：Amro_GuoDong、Amro_SumuGod、Paperqwq
 
 ### 您也可以在QQ找到我
 
@@ -18,7 +18,7 @@
 
 会长QQ：1103427930（推荐加）
 
-副会长QQ：457461776、2794441233
+副会长QQ：457461776[Amro_GuoDong]、2794441233[Paperqwq]
 
 ## Amro工会歌单
 
