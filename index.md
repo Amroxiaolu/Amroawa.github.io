@@ -18,7 +18,7 @@
 
 会长QQ：1103427930（推荐加）
 
-副会长QQ：457461776[Amro_GuoDong]、2794441233[Paperqwq]
+副会长QQ：2794441233[Paperqwq]
 
 ## Amro工会歌单
 
