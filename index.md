@@ -7,10 +7,10 @@
 您可以在 我的b站主页[点我进入](https://space.bilibili.com/690611470)关注我的动态
 
 
-### 主要成员
-会长：Amro_xiaolua
+### 主要成员(一个月后改回"Amro_")
+会长：RTX5060
 
-副会长：Amro_GuoDong、Amro_SumuGod、Paperqwq
+副会长:RTX5080、Paperqwq
 
 ### 您也可以在QQ找到我
 
@@ -41,3 +41,6 @@
 7.中国共产党万岁！人民万岁！100岁生日快乐！
 
 8.河南加油！奥运会加油！中国加油！——(2021.7.24
+
+9.Rip Amro_GuoDong in Amro Guild bye bye————————2021.8.17
+
