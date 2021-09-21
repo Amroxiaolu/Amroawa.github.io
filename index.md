@@ -10,7 +10,7 @@
 ### 主要成员(一个月后改回"Amro_")
 会长：RTX5060
 
-副会长:RTX5080、Paperqwq
+副会长:AmrosumuGod、Paperqwq
 
 ### 您也可以在QQ找到我
 
